@@ -1,9 +1,9 @@
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-29_174106231.png" /></div>
+<div align="center"><img src="https://files.catbox.moe/abgvrj.png" /></div>
 <div align="center">extreme cluster b traitsㅤㅤsusp bpd+npd</div>
 <div align="center">i type weird, i misspell stuff both to be silly and on accident</div>
 <div align="center">use it/its + "that/thing"(nonhuman terms) pretty please</div>
 <div align="center">(っ . -｡) . ° ○</div>
 ㅤ
 <p align="center">
-$${\color{#fecc57}｡}$$ $${\color{#ffe766}⁖}$$ $${\color{#ffe87c}✦}$$ $${\color{#fdf5c1}˖}$$ ㅤ $${\color{#e5edbb}.}$$ $${\color{#d3eab2}⊹}$$ $${\color{#caed90}｡}$$ $${\color{#b9e258}˖}$$ ㅤ $${\color{#b6dd3a}✧}$$ $${\color{#b1d532}⊹}$$ $${\color{#81bd0e}｡}$$ $${\color{#72a909}⁖}$$ $${\color{#426813}.}$$ ㅤ
+$${\color{#3F363C}｡}$$ $${\color{#3F363C}⁖}$$ $${\color{#5D4443}✦}$$ $${\color{#7B524A}˖}$$ ㅤ $${\color{#7B524A}.}$$ $${\color{#865C4B}⊹}$$ $${\color{#91664B}｡}$$ $${\color{#A47E51}˖}$$ ㅤ $${\color{#B89757}✧}$$ $${\color{#BFAA76}⊹}$$ $${\color{#BFAA76}｡}$$ $${\color{#C7BE95}⁖}$$ $${\color{#C7BE95}.}$$ ㅤ
 </p>
