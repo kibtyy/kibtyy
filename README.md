@@ -1,4 +1,4 @@
-<div align="center"><img src="https://files.catbox.moe/abgvrj.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-09-05_193105507.png" /></div>
 <div align="center">extreme cluster b traitsㅤㅤsusp bpd+npd</div>
 <div align="center">i type weird, i misspell stuff both to be silly and on accident</div>
 <div align="center">use it/its + "that/thing"(nonhuman terms) pretty please</div>
